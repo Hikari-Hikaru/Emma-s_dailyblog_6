@@ -22,7 +22,7 @@
     <p>
       I passed the interview - ✌<br>
       And at the same time,I can't believe it's already that time of year (yikes)💦 <br><br>
-      My first regular exams 4 becoming a high schooler ...<br><br>
+      My first regular exams since becoming a high schooler ...<br><br>
      well,I'll do my best...Haha<br><br>
     </p>
   </main>
